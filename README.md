@@ -1,1 +1,1 @@
-# Blue-Archive-is
+# Blue Archive.is
